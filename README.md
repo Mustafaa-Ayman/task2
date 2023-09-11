@@ -1,1 +1,1 @@
-![fulll moon](E:\photoos/photo.png)
+![fulll moon](photo.png)
